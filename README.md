@@ -13,3 +13,4 @@ Adoro trocar ideias sobre tecnologia, projetos ou qualquer coisa relacionada ao 
 
 📫 **Como me encontrar:**  
 - Email: [Santos.chailysson@escola.pr.gov.br]
+- Instagram: [@chailyssondutra]
